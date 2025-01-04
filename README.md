@@ -8,4 +8,4 @@
 
 ### Hachi as a Hobbyist
 
-- 🧩 Maker | 🎷 Musician | 📸 [Photographer](https://www.instagram.com/hachi.jpg.jp/)
+- 🧩 Maker | 🎷 Musician | 📸 [Photographer](https://www.instagram.com/hachi.s08)
